@@ -18,21 +18,26 @@ También podemos ver cómo el trato hacia los usuarios claramente tienen prefere
 
 Link al post del foro: http://foro.dayz-rphispano.es/index.php?topic=638.msg6350#msg6350
 Captura en caso de que borren/editen el post: http://i.imgur.com/RPQKD8Y.png
+![Banneo en conjunto](http://i.imgur.com/RPQKD8Y.png)
 
 Link al post del foro: http://foro.dayz-rphispano.es/index.php?topic=1381.msg6347#msg6347
 Captura en caso de que borren/editen el post: http://i.imgur.com/3da4l7R.png
+![Post largo de Ryoga](http://i.imgur.com/3da4l7R.png)
 
 Ni siquiera se cumplieron 9 días, y esta persona ya está jugando de nuevo en el servidor. Esa es la clase de administración que tenemos, en donde los amigos que rompieron con cuanta norma pudieron e incluso les advirtieron sobre esto y continuaron con sus malos actos salen impunes y las personas que cometen un KO's tienen 20 días de ban. ¿Acaso esto es justicia?
 
 Link al post del foro: http://foro.dayz-rphispano.es/index.php?topic=638.msg6088#msg6088
 Captura en caso de que borren/editen el post: http://imgur.com/FZ8aaK0.png
+![Jonathan Diaz](http://imgur.com/FZ8aaK0.png)
 
 Link al post del foro: http://foro.dayz-rphispano.es/index.php?topic=638.msg6731#msg6731
 Captura en caso de que borren/editen el post: http://i.imgur.com/4v2Y5TK.png
+![Chuui](http://i.imgur.com/4v2Y5TK.png)
 
 
 No estoy diciendo que estas personas sean inocentes, lo que digo es que Caro/Karolina (por cierto, tiene 2 cuentas, ambas aprobadas, ¿no está prohibida la multi-cuenta, o sólo se les prohíbe a algunos?, ¿desde cuándo eso tiene sentido?) No es inocente y aún así salió ganando a pesar de ser 10 veces más culpable que los mencionados ahí arriba.
 Carolina jugando el día 25/02 a medianoche: http://i.imgur.com/ntsFJxj.png
+![Karolina online Día 25/02/2017](http://i.imgur.com/ntsFJxj.png)
 
 
 Mirando el asunto desde otro ángulo, los compañeros de Caro que fueron banneados junto con ella, ellos si van a cumplir el ban que se les puso en su momento, ¿veis ahora la preferencia de la administración?
