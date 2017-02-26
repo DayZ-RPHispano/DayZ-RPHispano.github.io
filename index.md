@@ -9,6 +9,7 @@ Minutos de la charla 7:05 y 8:40.
 También se puede ver al inicio del video como Luke Wilson utiliza un exploit para ingresar a la base, ¿acaso eso no  es ilegal? Pues parece que las reglas no se aplican a la administración.
 
 No os preocupéis si no conseguís ver el video, en caso de ser necesario lo re-subiremos. Este video fue subido originalmente por Luke Wilson: http://imgur.com/yxM1bLD.png
+![Foto del video de Luke Wilson](http://imgur.com/yxM1bLD.png)
 Link al video resubido: https://vid.me/XH1b 
 
 
